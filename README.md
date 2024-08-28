@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GHKTG123
-- 👀 My goal is to become the G.O.A.T in the hacking universe
+- 💀⃤ My goal is to become the G.O.A.T in the hacking universe
 - 📓 I’m currently learning Password Brute Force 
 - 📭 How to reach me - kaushikbv01@gmail.com
 
